@@ -6,3 +6,11 @@
 
 ## Al Baqarah : 286
 ![Surah Al Baqarah Verse 286](Surah-Al-Baqarah-286.JPG?raw=true "Surah Al Baqarah Verse 286")
+
+
+## Al Baqarah : 286
+![Surah Al Baqarah Verse 286](Surah-Al-Baqarah-Last-Verse.JPG?raw=true "Surah Al Baqarah Verse 286")
+
+
+## Al Baqarah : 286
+![Surah Al Baqarah Verse 286](Surah-Al-Baqarah-286-Last.JPG?raw=true "Surah Al Baqarah Verse 286")
